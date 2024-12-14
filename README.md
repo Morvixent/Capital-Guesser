@@ -17,4 +17,4 @@
 
 **Here Is A Preview Below To See What It Looks Like:**
 
-![image](![image](https://github.com/user-attachments/assets/2f85b077-938e-4369-92a6-228b50e1936d)
+(![image](https://github.com/user-attachments/assets/2f85b077-938e-4369-92a6-228b50e1936d)
